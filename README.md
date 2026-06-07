@@ -7,12 +7,12 @@
 
 | Date | Description | Location | Arrangement | Accommodation | Notes |
 | --- | --- | --- | --- | --- | --- |
-| **Oct 1** | 抵达福冈，城市休整 | ✈️ **Fukuoka / 福冈** | 抵达福冈机场；地铁/出租车前往博多或天神；晚上中洲屋台、博多拉面、天神逛街 | **福冈酒店 1/2 晚** | 福冈机场到市区很近，第一天不要安排太满 |
-| **Oct 2** | 福冈市区 + 太宰府 | **Fukuoka / Dazaifu / 福冈 & 太宰府** | 上午太宰府天满宫；下午大濠公园、福冈城迹、天神/博多购物；晚上中洲屋台 | **福冈酒店 2/2 晚** | 轻松城市日，适合买药妆和吃饭 |
-| **Oct 3** | 福冈 → 由布院温泉 | 🚆 **Yufuin / 由布院** | 上午从博多出发去由布院；下午汤之坪街道、金鳞湖、咖啡店；晚上住温泉旅馆泡汤 | **由布院温泉旅馆** | 推荐坐特急或高速巴士；由布院适合慢节奏 |
-| **Oct 4** | 由布院 → 别府温泉 | ♨️ **Beppu / 别府** | 上午由布院散步；中午/下午前往别府；别府地狱巡游、铁轮温泉、地狱蒸料理、竹瓦温泉 | **别府温泉酒店/旅馆** | 别府温泉氛围很强，到处可见蒸汽 |
-| **Oct 5** | 别府 → 阿苏 → 黑川温泉 | 🚗 **Aso / Kurokawa Onsen / 阿苏 & 黑川温泉** | 推荐租车或包车：别府出发，经九重/长者原、大观峰、草千里、阿苏火山口，傍晚到黑川温泉 | **黑川温泉旅馆** | 全程最精华的一天；如果不租车，可查 Kyushu Odan Bus |
-| **Oct 6** | 黑川温泉 → 熊本 | 🏯 **Kumamoto / 熊本** | 上午黑川温泉散步、泡汤；中午前往熊本；下午熊本城、城彩苑、水前寺成趣园；晚上吃马肉刺身/熊本拉面 | **熊本酒店** | 如果前一天阿苏天气不好，可把阿苏景点挪到这天上午 |
+| **Oct 1** | 抵达福冈，城市休整 | ✈️ **Fukuoka / 福冈** | 抵达福冈机场；地铁/出租车前往博多或天神；晚上中洲屋台、博多拉面、天神逛街 | [THE BLOSSOM HAKATA Premier](https://hk.trip.com/hotels/fukuoka-hotel-detail-38934428/the-blossom-hakata-premier/) 或 [Miyako Hotel Hakata](https://www.trip.com/hotels/fukuoka-hotel-detail-705197/miyako-hotel-hakata/) | 福冈机场到市区很近，第一天不要安排太满 |
+| **Oct 2** | 福冈市区 + 太宰府 | **Fukuoka / Dazaifu / 福冈 & 太宰府** | 上午太宰府天满宫；下午大濠公园、福冈城迹、天神/博多购物；晚上中洲屋台 | [THE BLOSSOM HAKATA Premier](https://hk.trip.com/hotels/fukuoka-hotel-detail-38934428/the-blossom-hakata-premier/) 或 [Mitsui Garden Hotel Fukuoka Gion](https://us.trip.com/hotels/fukuoka-hotel-detail-29772917/mitsui-garden-hotel-fukuoka-gion/) | 轻松城市日，适合买药妆和吃饭 |
+| **Oct 3** | 福冈 → 由布院温泉 | 🚆 **Yufuin / 由布院** | 上午从博多出发去由布院；下午汤之坪街道、金鳞湖、咖啡店；晚上住温泉旅馆泡汤 | [Yufuin Onsen Hinoharu Ryokan](https://www.trip.com/hotels/yufu-hotel-detail-1309116/yufuin-onsen-hinoharu-ryokan/) 或 [Yufuin Baien Garden Resort](https://www.yufuin-baien.com/en/) | 推荐坐特急或高速巴士；由布院适合慢节奏 |
+| **Oct 4** | 由布院 → 别府温泉 | ♨️ **Beppu / 别府** | 上午由布院散步；中午/下午前往别府；别府地狱巡游、铁轮温泉、地狱蒸料理、竹瓦温泉 | [AMANE RESORT SEIKAI](https://www.trip.com/hotels/beppu-hotel-detail-1498634/amane-resort-seikai/) 或 [Beppu Suginoi Hotel](https://www.trip.com/hotels/beppu-hotel-detail-703533/beppu-suginoi-hotel/) | 别府温泉氛围很强，到处可见蒸汽 |
+| **Oct 5** | 别府 → 阿苏 → 黑川温泉 | 🚗 **Aso / Kurokawa Onsen / 阿苏 & 黑川温泉** | 推荐租车或包车：别府出发，经九重/长者原、大观峰、草千里、阿苏火山口，傍晚到黑川温泉 | [Kurokawa Onsen Oku No Yu / 奥之汤](https://www.trip.com/hotels/minamioguni-hotel-detail-1652106/kurokawa-onsen-oku-no-yu/) 或 [Ikoi Ryokan / いこい旅馆](https://www.trip.com/hotels/minamioguni-hotel-detail-17453023/kurokawa-onsen-ikoi-ryokan/) | 全程最精华的一天；如果不租车，可查 Kyushu Odan Bus |
+| **Oct 6** | 黑川温泉 → 熊本 | 🏯 **Kumamoto / 熊本** | 上午黑川温泉散步、泡汤；中午前往熊本；下午熊本城、城彩苑、水前寺成趣园；晚上吃马肉刺身/熊本拉面 | [THE BLOSSOM KUMAMOTO](https://www.trip.com/hotels/kumamoto-hotel-detail-70181290/the-blossom-kumamoto/) 或 [Dormy Inn Kumamoto Natural Hot Spring](https://www.trip.com/hotels/kumamoto-hotel-detail-705263/dormy-inn-kumamoto-natural-hot-spring/) | 如果前一天阿苏天气不好，可把阿苏景点挪到这天上午 |
 | **Oct 7** | 熊本 → 福冈 → 返程 | ✈️ **Fukuoka Airport / 福冈机场** | 上午熊本坐新干线/JR回博多；博多站购物、吃饭；前往福冈机场返程 | — | 国际航班建议至少预留 3 小时机场时间 |
 
 ---
@@ -30,9 +30,10 @@
 
 | 推荐 | 类型 | 适合人群 | 推荐理由 |
 | --- | --- | --- | --- |
-| **Miyako Hotel Hakata** | 高级城市酒店 | 2 人 / 想住舒服 | 博多站旁，交通非常方便；适合作为第一晚恢复体力 |
-| **THE BLOSSOM HAKATA Premier** | 中高端酒店 | 2–4 人 | 位置好，去博多站、祇园、中洲都方便 |
-| **Mitsui Garden Hotel Fukuoka Gion / Nakasu** | 中端舒适酒店 | 2–4 人 | 连锁品质稳定，适合国庆高峰期；部分房型空间比普通商务酒店舒服 |
+| [Miyako Hotel Hakata](https://www.trip.com/hotels/fukuoka-hotel-detail-705197/miyako-hotel-hakata/) | 高级城市酒店 | 2 人 / 想住舒服 | 博多站旁，交通非常方便；适合作为第一晚恢复体力 |
+| [THE BLOSSOM HAKATA Premier](https://hk.trip.com/hotels/fukuoka-hotel-detail-38934428/the-blossom-hakata-premier/) | 中高端酒店 | 2–4 人 | 位置好，去博多站、祇园、中洲都方便 |
+| [Mitsui Garden Hotel Fukuoka Gion](https://us.trip.com/hotels/fukuoka-hotel-detail-29772917/mitsui-garden-hotel-fukuoka-gion/) / [Mitsui Garden Hotel Fukuoka Nakasu](https://www.trip.com/hotels/fukuoka-hotel-detail-56699615/mitsui-garden-hotel-fukuoka-nakasu/) | 中端舒适酒店 | 2–4 人 | 连锁品质稳定，适合国庆高峰期；部分房型空间比普通商务酒店舒服 |
+| [Airbnb — Fukuoka / Hakata 搜索](https://www.airbnb.com/s/Fukuoka--Japan/homes) | Airbnb / 民宿 | 2–4 人 | 适合多人同行，建议筛选 Hakata Station、Gion、Tenjin、Nakasu-Kawabata 附近 |
 
 **Airbnb / 民宿区域建议：**
 
@@ -51,14 +52,16 @@
 
 | 推荐 | 类型 | 适合人群 | 推荐理由 |
 | --- | --- | --- | --- |
-| **Ryokan Fukinoya / 冨季の舎** | 温泉旅馆 | 2–4 人 | 有私人温泉选择，适合情侣或小家庭；温泉体验感较强 |
-| **Yufuin Baien Garden Resort / 由布院梅园** | 温泉旅馆 | 2–4 人 | 庭园、温泉和料理体验较完整，整体更度假 |
-| **Yufuin Onsen Hinoharu Ryokan / 日の春旅馆** | 小型传统旅馆 | 2–4 人 | 小型传统日式旅馆，适合想体验安静温泉氛围的人 |
+| [Ryokan Fukinoya / 冨季の舎](https://www.fukinoya.com/en/) | 温泉旅馆 | 2–4 人 | 有私人温泉选择，适合情侣或小家庭；温泉体验感较强 |
+| [Yufuin Baien Garden Resort / 由布院梅园](https://www.yufuin-baien.com/en/) | 温泉旅馆 | 2–4 人 | 庭园、温泉和料理体验较完整，整体更度假 |
+| [Yufuin Onsen Hinoharu Ryokan / 日の春旅馆](https://www.trip.com/hotels/yufu-hotel-detail-1309116/yufuin-onsen-hinoharu-ryokan/) | 小型传统旅馆 | 2–4 人 | 小型传统日式旅馆，适合想体验安静温泉氛围的人 |
+| [Airbnb — Yufuin / Yufu 搜索](https://www.airbnb.com/s/Yufu--Oita--Japan/homes) | Airbnb / 民宿 | 2–4 人 | 适合想住独栋、小屋或公寓的人；建议优先选 Yufuin Station、Yunotsubo Street、Kinrin Lake 附近 |
 
 **我的建议：**
 
 - 预算够：优先 **Ryokan Fukinoya** 或 **Yufuin Baien**
 - 想传统、安静：选 **Hinoharu Ryokan**
+- 如果 Airbnb：优先看 **Yufuin Station / 汤之坪街道 / 金鳞湖** 附近
 
 ---
 
@@ -68,15 +71,17 @@
 
 | 推荐 | 类型 | 适合人群 | 推荐理由 |
 | --- | --- | --- | --- |
-| **AMANE RESORT SEIKAI / 潮騒の宿 晴海** | 海景温泉酒店 | 2–4 人 | 偏高端，适合想要海景、私汤、度假感的人 |
-| **Suginoi Hotel / 杉乃井酒店** | 大型温泉度假酒店 | 2–4 人 / 家庭 | 设施丰富，适合不想费心安排的人；别府代表性大型温泉酒店 |
-| **Hana Beppu / 花べっぷ** | 温泉旅馆 | 2–4 人 | 相对精致安静，位置便利，适合兼顾交通和温泉体验 |
+| [AMANE RESORT SEIKAI / 潮騒の宿 晴海](https://www.trip.com/hotels/beppu-hotel-detail-1498634/amane-resort-seikai/) | 海景温泉酒店 | 2–4 人 | 偏高端，适合想要海景、私汤、度假感的人 |
+| [Beppu Suginoi Hotel / 杉乃井酒店](https://www.trip.com/hotels/beppu-hotel-detail-703533/beppu-suginoi-hotel/) | 大型温泉度假酒店 | 2–4 人 / 家庭 | 设施丰富，适合不想费心安排的人；别府代表性大型温泉酒店 |
+| [Hana Beppu / 花べっぷ](https://www.trip.com/hotels/beppu-hotel-detail-1652297/hana-beppu/) | 温泉旅馆 | 2–4 人 | 相对精致安静，位置便利，适合兼顾交通和温泉体验 |
+| [Airbnb — Beppu 搜索](https://www.airbnb.com/s/Beppu--Oita--Japan/homes) | Airbnb / 民宿 | 2–4 人 | 适合多人同行；建议优先选 Beppu Station、Kannawa Onsen、Kitahama 附近 |
 
 **我的建议：**
 
 - 想泡得舒服：选 **AMANE RESORT SEIKAI**
 - 3–4 人同行、想轻松热闹：选 **Suginoi Hotel**
 - 想安静一点：选 **Hana Beppu**
+- 如果 Airbnb：优先看 **Beppu Station / 铁轮温泉 / 北浜** 附近
 
 ---
 
@@ -86,9 +91,10 @@
 
 | 推荐 | 类型 | 适合人群 | 推荐理由 |
 | --- | --- | --- | --- |
-| **Ryokan Okunoyu / 奥之汤** | 温泉旅馆 | 2–4 人 | 黑川代表性旅馆之一，温泉选择丰富，适合第一次住黑川 |
-| **Ikoi Ryokan / いこい旅馆** | 传统温泉旅馆 | 2–4 人 | 黑川经典选择，温泉氛围强，适合想体验传统黑川的人 |
-| **Okyakuya / 御客屋** | 老牌温泉旅馆 | 2–4 人 | 更传统、更日式，适合喜欢历史感和安静氛围的人 |
+| [Kurokawa Onsen Oku No Yu / 奥之汤](https://www.trip.com/hotels/minamioguni-hotel-detail-1652106/kurokawa-onsen-oku-no-yu/) | 温泉旅馆 | 2–4 人 | 黑川代表性旅馆之一，温泉选择丰富，适合第一次住黑川 |
+| [Ikoi Ryokan / いこい旅馆](https://www.trip.com/hotels/minamioguni-hotel-detail-17453023/kurokawa-onsen-ikoi-ryokan/) | 传统温泉旅馆 | 2–4 人 | 黑川经典选择，温泉氛围强，适合想体验传统黑川的人 |
+| [Okyakuya / 御客屋](https://www.kurokawaonsen.or.jp/en/oyado/innInfo.php?intYKey=3) | 老牌温泉旅馆 | 2–4 人 | 更传统、更日式，适合喜欢历史感和安静氛围的人 |
+| [Airbnb — Minamioguni / Kurokawa Onsen 搜索](https://www.airbnb.com/s/Minamioguni--Kumamoto--Japan/homes) | Airbnb / 民宿 | 2–4 人 | 黑川 Airbnb 选择相对少；如果主要为了温泉体验，仍建议优先住传统旅馆 |
 
 **我的建议：**
 
@@ -108,15 +114,16 @@
 
 | 推荐 | 类型 | 适合人群 | 推荐理由 |
 | --- | --- | --- | --- |
-| **Dormy Inn Kumamoto Natural Hot Spring** | 带天然温泉商务酒店 | 2 人为主 | 有天然温泉，位置适合去熊本城和巴士总站 |
-| **THE BLOSSOM KUMAMOTO** | 中高端城市酒店 | 2–4 人 | 靠近熊本站，第二天回福冈方便，房间品质较稳 |
-| **fav KUMAMOTO** | 公寓式酒店 | 2–4 人 | 更适合多人同行，房间空间通常比普通酒店更友好 |
+| [Dormy Inn Kumamoto Natural Hot Spring](https://www.trip.com/hotels/kumamoto-hotel-detail-705263/dormy-inn-kumamoto-natural-hot-spring/) | 带天然温泉商务酒店 | 2 人为主 | 有天然温泉，位置适合去熊本城和巴士总站 |
+| [THE BLOSSOM KUMAMOTO](https://www.trip.com/hotels/kumamoto-hotel-detail-70181290/the-blossom-kumamoto/) | 中高端城市酒店 | 2–4 人 | 靠近熊本站，第二天回福冈方便，房间品质较稳 |
+| [fav KUMAMOTO](https://www.booking.com/searchresults.html?ss=fav+KUMAMOTO) | 公寓式酒店 | 2–4 人 | 更适合多人同行，房间空间通常比普通酒店更友好 |
+| [Airbnb — Kumamoto 搜索](https://www.airbnb.com/s/Kumamoto--Japan/homes) | Airbnb / 民宿 | 2–4 人 | 适合多人同行；建议优先选 Kumamoto Station、Sakuramachi、Kumamoto Castle 附近 |
 
 **我的建议：**
 
 - 想继续泡汤：选 **Dormy Inn Kumamoto**
 - 重视交通和房间品质：选 **THE BLOSSOM KUMAMOTO**
-- 3–4 人同行：优先查 **fav KUMAMOTO**
+- 3–4 人同行：优先查 **fav KUMAMOTO** 或 Airbnb
 
 ---
 
@@ -174,12 +181,12 @@
 
 | 日期 | 城市 | 首选住宿 |
 | --- | --- | --- |
-| **Oct 1** | 福冈 | THE BLOSSOM HAKATA Premier |
-| **Oct 2** | 福冈 | THE BLOSSOM HAKATA Premier |
-| **Oct 3** | 由布院 | Ryokan Fukinoya 或 Yufuin Baien |
-| **Oct 4** | 别府 | AMANE RESORT SEIKAI 或 Hana Beppu |
-| **Oct 5** | 黑川温泉 | Ryokan Okunoyu |
-| **Oct 6** | 熊本 | THE BLOSSOM KUMAMOTO 或 Dormy Inn Kumamoto |
+| **Oct 1** | 福冈 | [THE BLOSSOM HAKATA Premier](https://hk.trip.com/hotels/fukuoka-hotel-detail-38934428/the-blossom-hakata-premier/) |
+| **Oct 2** | 福冈 | [THE BLOSSOM HAKATA Premier](https://hk.trip.com/hotels/fukuoka-hotel-detail-38934428/the-blossom-hakata-premier/) |
+| **Oct 3** | 由布院 | [Ryokan Fukinoya](https://www.fukinoya.com/en/) 或 [Yufuin Baien](https://www.yufuin-baien.com/en/) |
+| **Oct 4** | 别府 | [AMANE RESORT SEIKAI](https://www.trip.com/hotels/beppu-hotel-detail-1498634/amane-resort-seikai/) 或 [Hana Beppu](https://www.trip.com/hotels/beppu-hotel-detail-1652297/hana-beppu/) |
+| **Oct 5** | 黑川温泉 | [Kurokawa Onsen Oku No Yu](https://www.trip.com/hotels/minamioguni-hotel-detail-1652106/kurokawa-onsen-oku-no-yu/) |
+| **Oct 6** | 熊本 | [THE BLOSSOM KUMAMOTO](https://www.trip.com/hotels/kumamoto-hotel-detail-70181290/the-blossom-kumamoto/) 或 [Dormy Inn Kumamoto Natural Hot Spring](https://www.trip.com/hotels/kumamoto-hotel-detail-705263/dormy-inn-kumamoto-natural-hot-spring/) |
 
 ---
 
@@ -192,4 +199,4 @@
 1. **Oct 3 由布院**
 2. **Oct 5 黑川温泉**
 
-这两晚决定整趟旅行质量。# Fukuoka
+这两晚决定整趟旅行质量。
